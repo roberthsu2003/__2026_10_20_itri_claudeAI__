@@ -9,4 +9,7 @@ https://www.youtube.com/watch?v=eJK-jigKcGQ
 ## 2026_10_21_上午
 https://www.youtube.com/watch?v=0cQHRw5O4UM
 
+## 2026_10_21_下午
+https://www.youtube.com/watch?v=Fu2cdLUbytE
+
 ---
